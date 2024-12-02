@@ -1,0 +1,1 @@
+# den-gi-za-registraciyu-s-vyvodom-srazu
